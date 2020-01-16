@@ -1,3 +1,2 @@
-#aid1911 git　学习
-＃Tom hsajhsdjakjdskjf
-![](./gx.jpeg)
+教育机构哪最坑
+就来北京达内
